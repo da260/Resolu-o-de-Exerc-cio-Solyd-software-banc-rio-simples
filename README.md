@@ -1,0 +1,1 @@
+# Resolu-o-de-Exerc-cio-Solyd-software-banc-rio-simples
