@@ -1,1 +1,1 @@
-# Resolu-o-de-Exerc-cio-Solyd-software-banc-rio-simples
+# Resolução-de-Exercercio-Solyd-software-bancário-simples
